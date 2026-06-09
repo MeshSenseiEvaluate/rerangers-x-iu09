@@ -1,4 +1,4 @@
-# 
+# Experience re:rangers x like never before with advanced Scripts for re:rangers x, the #1 Script. Includes private server access and god mode for
 
 
 
